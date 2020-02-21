@@ -1,0 +1,1 @@
+All images are property of Prof. C. Steger.
